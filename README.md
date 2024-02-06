@@ -6,5 +6,6 @@
 
 **Telegram**: t.me/micunovicmatija629
 
-Hi, I want to talk you via this contact info
+Hi, I want to talk you via this contact info if possible
+
 I am very happy if you contact me there, Thank you~
