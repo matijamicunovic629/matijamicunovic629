@@ -2,7 +2,7 @@
 
 **Whatsapp**: +381 61 1164453
 
-**skype**: live:.cid.a79512c23c36b24
+**skype**: live:.cid.33e440ed35b90946
 
 **Telegram**: t.me/micunovicmatija629
 
