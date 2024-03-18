@@ -4,7 +4,7 @@
 
 **skype**: live:.cid.33e440ed35b90946
 
-**Telegram**: t.me/matija629
+**Telegram**: t.me/matijabusiness
 
 Hi, I want to talk you via this contact info if possible
 
