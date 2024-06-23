@@ -1,7 +1,5 @@
 **GMAIL**: micunovicmatija629@gmail.com
 
-**Whatsapp**: +381 61 1164453
-
 **skype**: live:.cid.33e440ed35b90946
 
 **Telegram**: t.me/matijabusiness
