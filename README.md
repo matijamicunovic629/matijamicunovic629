@@ -1,8 +1,8 @@
 **GMAIL**: micunovicmatija629@gmail.com
 
-**skype**: live:.cid.33e440ed35b90946
-
 **Telegram**: t.me/matijabusiness
+
+**LinkedIn**: https://www.linkedin.com/in/matija-micunovic
 
 Hi, I want to talk you via this contact info if possible
 
